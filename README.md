@@ -1,0 +1,1 @@
+This is a mockup website done by a group project by the boys and this is just the homepage innit.![image](https://github.com/Njau-dev/group-project/assets/161695696/94e3eefc-32fe-4f7a-b7cc-69c1a5202031)
